@@ -1,5 +1,8 @@
- Work experience
-Events Venue Manager  Verein Gleis 21, Vienna  June 2020 - Current 
+#Demo
+
+Work experience
+Events Venue Manager 
+Verein Gleis 21, Vienna  June 2020 - Current 
 Communicating, via email, phone and in person, with clients of various backgrounds, from architecture companies and banks to NGOs, start-ups and theatre groups.
 Collaborating with team members to create a satisfactory experience for clients, a smooth working environment and to constantly improve on current services.
 Giving tours to potential clients and helping existing ones with designing and preparing the venue for their planned events.
