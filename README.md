@@ -1,6 +1,6 @@
 #Demo
 
-Work experience
+Work experience!
 Events Venue Manager 
 Verein Gleis 21, Vienna  June 2020 - Current 
 Communicating, via email, phone and in person, with clients of various backgrounds, from architecture companies and banks to NGOs, start-ups and theatre groups.
